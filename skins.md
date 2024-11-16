@@ -1,8 +1,8 @@
 # Ice Shark's Skins
 
-Discord: iceshqrk
-
+Discord: @iceshqrk
 Twitter: https://twitter.com/IceShqrk
+osu! profile: https://osu.ppy.sh/users/9459674
 
 # [Ice Shark v1.6 (29/10/2022)](https://drive.google.com/file/d/1hyEftGBJ5z3ABHT01_AXL5b16oUlmIes/view?usp=sharing)
 ![screenshot4082](https://files.catbox.moe/l70fve.png)
