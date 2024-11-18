@@ -6,10 +6,10 @@ Twitter: https://twitter.com/IceShqrk
 
 osu! profile: https://osu.ppy.sh/users/9459674
 
-# [- netraena my angel](https://drive.google.com/file/d/1xYmZcVNbvetCGqStosOctWetkhYN4lS0/view?usp=sharing) / [DT version](https://drive.google.com/file/d/1FAguhDClNcOq-tnBPQEKSyezl7HyuVbR/view?usp=sharing) (16/11/2024)
+# [- netraena my angel](https://www.mediafire.com/file/dxcuf23xdqa7elw/-_netraena_my_angel.osk/file) / [DT version](https://www.mediafire.com/file/2mkjogstrkrydgu/-_netraena_my_DT_angel.osk/file) (16/11/2024)
 ![screenshot4081](https://files.catbox.moe/ot986o.png)
 
-# [Ice Shark v1.6](https://drive.google.com/file/d/1hyEftGBJ5z3ABHT01_AXL5b16oUlmIes/view?usp=sharing) (29/10/2022)
+# [Ice Shark v1.6](https://www.mediafire.com/file/ojnaczhrmuplo8s/Ice_Shark_v1.6.osk/file) (29/10/2022)
 ![screenshot4082](https://files.catbox.moe/l70fve.png)
 
 
