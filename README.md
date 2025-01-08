@@ -26,3 +26,6 @@ osu! profile: https://osu.ppy.sh/users/9459674
 # [404 SkinNotFound v2](https://www.mediafire.com/file/jqe0pinrlbd7fj0/404_SkinNotFound_v2.osk/file)
 ![screenshot4188](https://files.catbox.moe/ri4efq.jpg)
 
+# [_• tekkito2_vskf 404](https://www.mediafire.com/file/accdzpw3dyvp176/_%25E2%2580%25A2_tekkito2_vskf_404.osk/file)
+![screenshot4240](https://files.catbox.moe/3fwus7.jpg)
+
