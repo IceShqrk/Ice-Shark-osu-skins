@@ -9,6 +9,9 @@ osu! profile: https://osu.ppy.sh/users/9459674
 # [- netraena my angel](https://www.mediafire.com/file/dxcuf23xdqa7elw/-_netraena_my_angel.osk/file) (16/11/2024)
 ![screenshot4081](https://files.catbox.moe/ur4vvw.jpg)
 
+# [- Rafis HDDT netraena](https://www.mediafire.com/file/tqk5muoercbyz4n/-_Rafis_HDDT_netraena.osk/file) (03/02/2024)
+![screenshot4304](https://files.catbox.moe/i1h5sg.jpg)
+
 # [- netraena my DT angel](https://www.mediafire.com/file/2mkjogstrkrydgu/-_netraena_my_DT_angel.osk/file) (16/11/2024)
 ![screenshot4081](https://files.catbox.moe/tsw0cg.jpg)
 
@@ -17,6 +20,11 @@ osu! profile: https://osu.ppy.sh/users/9459674
 
 # some of the other skins that i use:
 
+# [NM v1.2 (Malteser)](https://www.mediafire.com/file/pmj085m8ec371fl/NM_v1.2.osk/file)
+![screenshot4303](https://files.catbox.moe/00bi49.jpg)
+
+# [gn_edit](https://www.mediafire.com/file/sys6mciatgo7nz3/gn_edit.osk/file)
+![screenshot4305](https://files.catbox.moe/e03jme.jpg)
 # [_• tekkito2_vskf 404](https://www.mediafire.com/file/accdzpw3dyvp176/_%25E2%2580%25A2_tekkito2_vskf_404.osk/file)
 ![screenshot4240](https://files.catbox.moe/3fwus7.jpg)
 
