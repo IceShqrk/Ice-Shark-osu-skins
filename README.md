@@ -6,11 +6,14 @@ Twitter: https://twitter.com/IceShqrk
 
 osu! profile: https://osu.ppy.sh/users/9459674
 
+# [iszrnctrnl](https://www.mediafire.com/file/1f008rnn8j7ng9a/iszrnctrnl.osk/file) (06/10/2025)
+<img width="1920" height="1080" alt="screenshot4888" src="https://github.com/user-attachments/assets/14f41467-88b9-4039-b7d6-bbff8ca2b478" />
+
+# [rafis netraena](https://www.mediafire.com/file/470br3wigoxa4lc/rafis_netraena.osk/file) (06/10/2025)
+<img width="1920" height="1080" alt="screenshot4890" src="https://github.com/user-attachments/assets/715220a6-f307-40ad-b086-8512aab97643" />
+
 # [- netraena my angel](https://www.mediafire.com/file/dxcuf23xdqa7elw/-_netraena_my_angel.osk/file) (16/11/2024)
 ![screenshot4081](https://files.catbox.moe/ur4vvw.jpg)
-
-# [- Rafis HDDT netraena](https://www.mediafire.com/file/tqk5muoercbyz4n/-_Rafis_HDDT_netraena.osk/file) (03/02/2025)
-![screenshot4304](https://files.catbox.moe/i1h5sg.jpg)
 
 # [- netraena my DT angel](https://www.mediafire.com/file/2mkjogstrkrydgu/-_netraena_my_DT_angel.osk/file) (16/11/2024)
 ![screenshot4081](https://files.catbox.moe/tsw0cg.jpg)
