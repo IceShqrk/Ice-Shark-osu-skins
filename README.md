@@ -21,8 +21,6 @@ osu! profile: https://osu.ppy.sh/users/9459674
 # [Ice Shark v1.6](https://www.mediafire.com/file/ojnaczhrmuplo8s/Ice_Shark_v1.6.osk/file) (29/10/2022)
 ![screenshot4082](https://files.catbox.moe/64m4el.jpg)
 
-# some of the other skins that i use:
-
 # [NM v1.2 (Malteser)](https://www.mediafire.com/file/pmj085m8ec371fl/NM_v1.2.osk/file)
 ![screenshot4303](https://files.catbox.moe/00bi49.jpg)
 
